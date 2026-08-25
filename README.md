@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**TomWasRight/TomWasRight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://files.catbox.moe/vhii7q.png" width="360">
 
-Here are some ideas to get you started:
+<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Art by fl4kz on Pinterest
+
+Ask to cud if not a friend
+
+I love my [boyfriend](https://github.com/i-amclandestine)
+
+<br><br>
