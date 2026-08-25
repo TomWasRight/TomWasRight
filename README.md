@@ -8,6 +8,6 @@ Art by fl4kz on Pinterest
 
 Ask to cud if not a friend . I'm 18 so <15 DNI unless I know you.
 
-I love my [boyfriend](https://github.com/i-amclandestine) (˶ᵔ ᵕ ᵔ˶) ‹𝟹
+I love my [partner](https://github.com/i-amclandestine) (˶ᵔ ᵕ ᵔ˶) ‹𝟹
 
 <br><br>
